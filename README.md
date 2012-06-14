@@ -1,4 +1,0 @@
-irishpubnj.cz
-=============
-
-Petr Chrobok
